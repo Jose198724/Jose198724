@@ -3,4 +3,4 @@
 
 Here are some ideas to get you started:
 
-- 🤔 I’m looking for help for some boody opened 
+- 🤔 I’m looking for help for other person open my accantd
