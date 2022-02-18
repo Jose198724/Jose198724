@@ -3,9 +3,4 @@
 
 Here are some ideas to get you started:
 
-- 🤔 I’m looking for help for some bodi is open mai for may accotn
-- 💬 Ask me 
-- 📫 How to the secon branch...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🤔 I’m looking for help for some boody opened 
